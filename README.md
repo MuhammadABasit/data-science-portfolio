@@ -11,7 +11,7 @@
 - Greet and assist guests warmly, handling inquiries, check-ins, and check-outs courteously. Respond to requests efficiently, maintain a professional appearance, and ensure safe, compliant, and friendly operations in line with hotel standards.
 - Uphold hotel policies, communicate effectively with team members, manage room reservations, operate front desk systems, and handle packages. Assist in emergency procedures, maintain up-to-date knowledge of hotel amenities, and perform additional tasks as needed to support overall cleanliness, organization, and service quality.
 
-**Order Fulfillment Associate @  The HomeDepot (_September 2021– January 2022_)**
+**Order Fulfillment Associate @  The HomeDepot (_September 2021– October 2023_)**
 - Handled online orders for delivery, curbside pick-ups, will calls, installation or truck deliveries.
 - Engaged in additional work as a customer service associate and cashier as well as other receptionist and service desk duties.
 
